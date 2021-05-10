@@ -1,2 +1,3 @@
 # CB_Check
-Nothing special except her~
+
+Dont forget to donate if u got some valid account XD : 3Jmj6vr8ZKChmV9vGx5zg3insNWkcNsw7E
